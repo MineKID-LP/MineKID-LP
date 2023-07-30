@@ -5,7 +5,7 @@
 
 Here are some ideas to get you started:
 -->
-- 🔭 I’m currently working on: PixelRealmSMP
+- 🔭 I’m currently working on: Duck Realm SMP
 - 🌱 I’m currently learning: A lot of shit.. always doing something
 - 👯 I’m looking to collaborate on: ¯\\\_(ツ)\_/¯ Hit me w suggestions ig
 - ⚡ Fun fact: Professional Dumbass
